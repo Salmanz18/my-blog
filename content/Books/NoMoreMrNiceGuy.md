@@ -55,7 +55,7 @@ Nice Guys often let people take advantage of them because they don’t enforce b
 
 ### 4. Embrace Your Masculinity
 
-Many Nice Guys are uncomfortable with their masculinity, often suppressing their assertiveness, ambition, and even their sexuality. This book encourages men to:
+Many Nice Guys are uncomfortable with their masculinity, often suppressing their assertiveness and ambition. This book encourages men to:
 
 - Stop seeking permission to be themselves.
 - Own their desires and express them unapologetically.
